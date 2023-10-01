@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KingOfMeowia
+- 👀 I’m interested in java script 
+- 🌱 I’m currently learning java script
+- 💞️ I’m looking to collaborate on zibra printersss
+- 📫 How to reach me potatoes
